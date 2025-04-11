@@ -6,6 +6,14 @@ Alexander Volkanovski: The ex-featherweight king recently found himself in an un
 Diego Lopes: Lopes has quickly climbed the featherweight ladder, earning his first title shot after beating top contenders Brian Ortega and Dan Ige. A dangerous power puncher with a ground game to match, Lopes excels in frenetic exchanges and has demonstrated an ability to keep coming back under pressure. Still, his wrestling and defensive striking can potentially be weaknesses against a vet of Volkanovski’s caliber.
 Key Factors in the Fight
 Volkanovski’s Form: After two knockout losses late in his career, questions exist about whether Volkanovski can get back to his peak form. If he fights like he did against Max Holloway or Yair Rodriguez, his superior striking technique and fight IQ could provide him a crucial advantage.
+
+💻Best Streams for PC/MAC  
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+
 Lopes’ Power and Aggression: Lopes enters the octagon with massive power and a level of unpredictability. The early-game onslaught is capable of overwhelming the competition, and that could spell trouble for Volkanovski as well, following his recent trouble with being knocked out.
 Whether Lopes can top the trading exchanges with Volkanovski is debatable, although the latter has demonstrated an ability to nullify submission threats against top-tier opponents such as Brian Ortega and Islam Makhachev. Lopes' challenge will be finding ways to get the fight to the ground without exposing himself to counters.
 Cardio and Championship Rounds: What has been a signature of Volkanovski throughout his career has been his conditioning, which has allowed him to overwhelm opponents late in fights. Should Lopes fail to score a quick defeat, conditions may deteriorate as Volkanovski swarms in on openings.
